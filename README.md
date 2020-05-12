@@ -1,2 +1,2 @@
-### homework
+### Homework
 ### Education only
